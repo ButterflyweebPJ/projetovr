@@ -1,2 +1,2 @@
 # projetovr
-Projeto em criação! talvez em breve estará aqui
+Em criação portanto não tem nada aqui por enquanto! mas espero fazer isso em breve!
